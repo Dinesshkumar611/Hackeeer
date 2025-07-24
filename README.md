@@ -1,3 +1,3 @@
 # Hackeeer
-puja mg bhala mg
+my life my rule my bal my gaal my saal usko pel
 
